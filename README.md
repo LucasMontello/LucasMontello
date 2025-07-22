@@ -8,5 +8,5 @@ Sou um entusiasta de TI em constante busca por conhecimento e desafios emocionan
 
 🔍 Estou sempre atento às últimas tendências e avanços na indústria de TI, buscando oportunidades para aprender e crescer. Além disso, sou um comunicador eficaz e um jogador de equipe comprometido, capaz de colaborar em ambientes multidisciplinares.
 
-- Venha me conhecer um pouco mais em https://www.linkedin.com/in/lucas-montello-2b46b5173
+- Venha me conhecer um pouco mais em www.linkedin.com/in/lucas-montello
 
